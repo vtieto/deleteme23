@@ -1,1 +1,1 @@
-Brecker first appeared on "Score."
+Brecker first appeared on a "Dreams" album.
